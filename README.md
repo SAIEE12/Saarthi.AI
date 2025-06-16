@@ -1,6 +1,6 @@
 
 
-# Saarthi.Ai ? Your Inner Journey, Guided
+# Saarthi.Ai - Your Inner Journey, Guided
 
 > Empathy. Mentorship. Clarity.  
 > Inspired by Lord Krishna ? the divine charioteer (Saarthi) who guided Arjuna through doubt and duty.
